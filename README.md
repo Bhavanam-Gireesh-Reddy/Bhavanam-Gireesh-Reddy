@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on AI.<br>👯 I’m looking to collaborate on Agents.<br>🤝 I’m looking for help with AI Agents.<br>🌱 I’m currently learning LLM's<br>💬 Ask me about Me and Artificial Intelligence.<br>⚡ Fun fact - Looks Good but I am A Bad Boy.
+🔭 I’m currently working on AI.<br>👯 I’m looking to collaborate on Agents.<br>🤝 I’m looking for help with AI Agents.<br>🌱 I’m currently learning LLM's<br>💬 Ask me about Me and Artificial Intelligence.<br>⚡ Fun fact - Interview Reddy.
 
 
 ## 🌐 Socials:
